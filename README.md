@@ -2,4 +2,4 @@
 - 👀  I’m interested in web developent and mobile friendly development. I also have passions for music, mental health, and LGBTQIA+ rights.
 - 🌱  I’m currently learning new techniques in every project I do.
 - 💞️  I’m looking to collaborate on any project that allows me to explore what not only I'm capable of but what others are capable of.
-- 📫  How to reach me - email: sam@samcarne.com or on the web: samcarne.com
+- 📫  How to reach me - email: sam@samcarne.com or on the web: samcarne.com. Also, find me on Twitter & IG: @sammerJoJo63
